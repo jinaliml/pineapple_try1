@@ -1,2 +1,2 @@
 # pineapple_try1
-딩
+ㅇ으ㅏ 귀찮다
